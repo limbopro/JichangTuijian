@@ -3,9 +3,9 @@
 **原文地址**：https://limbopro.com/archives/trojan_1yunti.html
 
 ### 近期测速
+![1云梯机场近期测速 20260209](https://limbopro.com/usr/uploads/2026/02/1809944954.png)
 ![1云梯机场近期测速 20260103](https://limbopro.com/usr/uploads/2026/01/3310901514.png)
 ![1云梯机场近期测速 20251202](https://limbopro.com/usr/uploads/2025/12/3958663552.png)
-![1云梯机场近期测速 20251102](https://limbopro.com/usr/uploads/2025/11/3697626541.png)
 - [最新测速记录](https://limbopro.com/archives/trojan_1yunti.html)；
 
 ### 套餐价格
@@ -35,7 +35,10 @@
 
 ### 节日优惠活动
 
-> 暂无；
+> 1:**月/季/半年/年付 8折（配合站内折上折，高达6.4折）优惠码**：**26XC20OFF** 可重复使用5次  
+~~2:两年/三年付 75折（配合站内折上折，高达4.5折）优惠码：26XC25OFF  可重复使用5次。~~  
+注意：一云梯小年包 - 套餐 不可使用优惠码，其他正常使用  
+活动时间：即日起至2026年03月10日23点59分  
 
   [111]: https://limbopro.com/usr/uploads/2024/01/1182877008.jpg
   [222]: https://www.pexels.com/photo/white-and-black-mountain-wallpaper-933054/
