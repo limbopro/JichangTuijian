@@ -1,4 +1,4 @@
-# 机场推荐(2026年10月16日更新)
+# 机场推荐(2026年11月22日更新)
 
 **即时更新请参阅原文，原文地址**：https://limbopro.com/865.html 
 
@@ -47,7 +47,7 @@
 
 即时更新参阅原文，地址：https://limbopro.com/865.html
 
-### 近期测速
+### 近期测速及ChatGPT日常使用/YouTube4K观看体验录屏简易记录⏺️
 
 
 ![YkkkCloud机场近期测速记录-2025年6月3日.png](https://limbopro.com/usr/uploads/2025/06/1142219173.png)
@@ -56,11 +56,12 @@
 ![YkkkCloud机场近期测速记录-2025年3月6日.png](https://limbopro.com/usr/uploads/2025/03/3276252526.png)
 - [最新测速记录](https://limbopro.com/865.html)
 
+#### 更多记录
 ![YkkkCloud机场近期测速记录-2025年8月5日.png](https://limbopro.com/usr/uploads/2025/08/3911683200.jpeg)
 
 > 近期 YkkCloud 已经更新至Vless，暂无测速批量节点测速工具支持测速；以上是 8月5日 群友观看8k 油管视频速度截图，带宽冗余充足；供参考；
 
-> 查看YkkCloud机场最新[**ChatGPT日常使用/YouTube4K观看体验**][1102]视频录制；10.16.2026 更新；
+> ✅✅✅ 查看YkkCloud机场最新[**ChatGPT日常使用/YouTube4K观看体验**][1102]视频录制；11.13.2026 更新；
 
 ### YkkCloud套餐价格
 
